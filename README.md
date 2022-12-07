@@ -1,4 +1,3 @@
-- Thiago
+- Pedro
 - Daniel
 - Thiago Verissimo
-
