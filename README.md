@@ -1,7 +1,7 @@
 
 - Talita Ventura 
 - Yasmin Marques
-- Pedro
+- Pedro - 2003
 - Daniel
 - Thiago Verissimo
 
