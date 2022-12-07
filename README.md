@@ -2,6 +2,6 @@
 - Talita Ventura 
 - Yasmin Marques
 - Pedro
-- Daniel
+- Daniel Silva Ferrira - 1993
 - Thiago Verissimo
 
