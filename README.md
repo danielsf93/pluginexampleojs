@@ -1,5 +1,5 @@
 
-- Pedro - 2003
+- Pedro - 2003 - pedro.php
 - Talita Ventura - 1997
 - Thiago Verissimo
 - Yasmin Marques - 2000
