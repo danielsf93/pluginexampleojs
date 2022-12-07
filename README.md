@@ -3,5 +3,5 @@
 - Yasmin Marques
 - Pedro
 - Daniel
-- Thiago Verissimo
+- Thiago Verissimo - 1986
 
