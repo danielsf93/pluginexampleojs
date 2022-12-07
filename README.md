@@ -1,7 +1,7 @@
 
 - Talita Ventura 
-- Yasmin Marques
+- Yasmin Marques - 2000
 - Pedro
 - Daniel Silva Ferrira - 1993
-- Thiago Verissimo
+- Thiago Verissimo - 1986
 
