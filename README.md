@@ -1,1 +1,2 @@
 - Thiago
+- Talita Ventura 
