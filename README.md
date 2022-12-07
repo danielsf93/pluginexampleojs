@@ -1,5 +1,5 @@
 
-- Talita Ventura 
+- Talita Ventura - 1997
 - Yasmin Marques
 - Pedro
 - Daniel
