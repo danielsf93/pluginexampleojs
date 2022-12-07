@@ -1,6 +1,6 @@
 
 - Talita Ventura 
-- Yasmin Marques
+- Yasmin Marques - 2000
 - Pedro
 - Daniel
 - Thiago Verissimo
