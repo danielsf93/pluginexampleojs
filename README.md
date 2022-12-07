@@ -1,3 +1,4 @@
+- Yasmin Marques
 - Pedro
 - Daniel
 - Thiago Verissimo
